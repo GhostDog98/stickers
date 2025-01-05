@@ -1,0 +1,2 @@
+# stickers
+Nerdy stickers
